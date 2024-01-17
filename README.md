@@ -1,2 +1,2 @@
 # ptypes
-Porno types 
+porno (stereotype) types
