@@ -1,2 +1,2 @@
 # ptypes
-porno (stereotype) types
+p(orno stereo)types
